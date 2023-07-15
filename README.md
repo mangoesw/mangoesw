@@ -1,1 +1,1 @@
-![wallpaper image](38.jpg)
+![wallpaper image](38.png)
