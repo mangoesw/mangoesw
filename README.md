@@ -1,1 +1,1 @@
-![wallpaper image](38.png)
+![what was supposed to be a wallpaper image](10.png)
